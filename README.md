@@ -1,2 +1,0 @@
-# YuriAsuka.github.io
-YuriAsuka ~
